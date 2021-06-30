@@ -19,3 +19,4 @@
 | Umang Dobariya | [@Umang2002](https://github.com/Umang2002) |
 | Sanjeev Kumar Mendegar | [@SanjeevKumar22](https://github.com/SanjeevKumar22) |
 | Srijan k  |[@Srijank] (https://github.com/Srijank) |
+| Bhagyashree Pathak | [bhagyashree-06](https://github.com/bhagyashree-06) |
